@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RescuedLace
+- 👀 I’m interested in almost everything
+- 🌱 I’m currently learning Minecraft Bedrock Edition modding
+-  Idk what I'm gonna use this for yet
